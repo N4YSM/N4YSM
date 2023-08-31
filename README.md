@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @N4YSM
+- 👋 Hi, I’m @N4YSM Nayra Gabryelle Silva Monteiro
 - 👀 I’m interested in acquiring new knowledge.
 - 🌱 I’m currently learning Phyton, I'm a beginner.
 - 💞️ I’m looking to collaborate in new projects.
